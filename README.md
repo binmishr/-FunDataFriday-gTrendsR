@@ -1,0 +1,1 @@
+# -FunDataFriday-gTrendsR
